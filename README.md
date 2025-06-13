@@ -1,0 +1,2 @@
+# smpnmoncok
+GitHub Pages
